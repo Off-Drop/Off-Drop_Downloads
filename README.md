@@ -1,2 +1,3 @@
 # Off-Drop_Downloads
-Stay updated for the release 
+New release dropping soon.
+Make sure to follow us for more updates  
